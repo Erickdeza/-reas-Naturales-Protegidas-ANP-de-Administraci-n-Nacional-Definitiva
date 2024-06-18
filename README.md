@@ -1,2 +1,2 @@
-# -reas-Naturales-Protegidas-ANP-de-Administraci-n-Nacional-Definitiva
+# Areas Naturales Protegidas
 Bienvenidos les daremos aa conocer Áreas Naturales Protegidas (ANP) de Administración Nacional Definitiva'
